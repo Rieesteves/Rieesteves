@@ -11,4 +11,4 @@ to read :- https://dev.to/rieesteves
 
 💞️ I’m looking forwoard to join in collaboration ahead ...
 
-📧 How to reach me : riecad123@gmail.com
+📧 How to reach me : esevesriean2@gmail.com
